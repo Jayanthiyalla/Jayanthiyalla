@@ -2,7 +2,7 @@
 - 🤞 I’m proactive to learn new things..
 - 🌱 I’m currently learning DSA..
 - 📫Reach me: https://www.linkedin.com/in/jayanthi-yalla-b93a6a229/
-- 😄 Pronouns:Countinous learner
+- 😄 Pronouns👩‍🎓
 (❁´◡`❁)
 
 <!---
